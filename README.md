@@ -1,4 +1,3 @@
 # paavnigrover.github.io
 
-
-Hello uncle namaste mein paavni
+Hey this is paavni's personal website. My instagram ID is : paavnigrover
