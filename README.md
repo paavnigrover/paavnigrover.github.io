@@ -1,3 +1,3 @@
-# paavnigrover.github.io
 
-Hey this is paavni's personal website. My instagram ID is : paavnigrover
+
+Hey this is paavni's personal website. My instagram ID is : **paavnigrover**
